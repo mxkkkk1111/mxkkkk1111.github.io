@@ -10,7 +10,7 @@
 
 B站：[mxkkkk_](https://space.bilibili.com/1344687531)  
 知乎：[mxkkkk](https://www.zhihu.com/people/86-59-11-86)  
-微博：[COMMAND_GROUP是我](https://weibo.com/u/7263553536)
+微博：[COMMAND_GROUP是我](https://weibo.com/u/7263553536)  
 抖音不知道怎么复制个人主页的链接，自己搜吧，反正跟其他平台同名
 
 
